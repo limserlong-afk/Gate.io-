@@ -8,7 +8,7 @@
 
 ## 联系方式
 
-- QQ：20767684
+- Email：limserlong@gmail.com
 - [立即体验量化机器人](http://8.130.105.238:7890/) 🚀
 - [芝麻交易所注册 20%-50%返佣](https://www.gatesee.com/share/SVIPGOGO) 📝
 
